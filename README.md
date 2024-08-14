@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @VikkiZ22
 - 👀 I’m interested in AI/CG
-- 🌱 I’m currently learning 3D/Photgraphy
+- 🌱 I’m currently learning 3D/Graphic Design
 - 💞️ I’m looking to collaborate on Good Projects
 - 📫 How to reach me ...
 
